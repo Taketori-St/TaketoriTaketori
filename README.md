@@ -1,1 +1,1 @@
-# TaketoriTaketori
+# Taketori
